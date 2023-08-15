@@ -1,3 +1,3 @@
 # git-workshop-4
 
-There once was a man from Nantucket; whose mouth twas as gaped as a bucket. He had a dog and a cat. and a stupid little hat,
+There once was a man from Nantucket; whose mouth twas as gaped as a bucket. With a dog and a cat, and a cute little hat, he'd gape wide his gob and he'd suck it.
